@@ -1,6 +1,5 @@
 丝瓜官方网页版
-  **跳转地址@@:https://ekramazgithub.io**
-
+   **跳转地址@@:https://ekramaz.github.io**
 
 
 要加紧，瘦的跟猴似的，不知道的还以为我这个大哥亏待你呢。]
